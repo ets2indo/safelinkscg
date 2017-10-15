@@ -1,0 +1,2 @@
+# safelinkscg
+safelink cgterbaru
